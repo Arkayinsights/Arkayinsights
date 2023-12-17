@@ -9,7 +9,7 @@
 📫 How to reach me:
    - Email: arkaydatainsights@gmail.com(mailto:arkaydatainsights@gmail.com)
    - LinkedIn: [Arkay Insights](https://www.linkedin.com/in/arkayinsights/)
-   - X: @Arkayinsights
+   - X: [@Arkayinsights](https://x.com/Arkayinsights?t=ZWggmLgRScFrklEqfBMfeA&s=09)
    - Instagram: https://www.instagram.com/arkayinsights?igshid=YzVkODRmOTdmMw==
 
 <!---
